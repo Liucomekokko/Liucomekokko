@@ -2,7 +2,7 @@
 - 👀 I’m interested in painting
 - 🌱 I’m currently learning Aws
 - 💞️ I have one son who will be four
-- 📫 How to reach me ...
+- 📫 I am currently a housewife and just starting to learn
 
 <!---
 Liucomekokko/Liucomekokko is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
